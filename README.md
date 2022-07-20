@@ -1,0 +1,2 @@
+# osho
+tribute to osho
